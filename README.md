@@ -16,6 +16,8 @@
 - 신발
 - 웨이트 트레이닝
 
+![5b8ae483885fb](https://user-images.githubusercontent.com/112446415/191141227-6279bdd5-f6cb-437d-9494-f894429cf441.png)
+
 
 
 
